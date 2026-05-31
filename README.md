@@ -51,7 +51,7 @@ _Serví y saboreá tu café en casa
 Aspirá el aroma y disfrutá de tu taza de café recién hecho!.
 
 
-3. Para más consulta visite esta página: https://youtube.com/shorts/7Wn6iBQ_Vf
+3. Para más consulta vea este video: https://youtube.com/shorts/7Wn6iBQ_Vf
 <br>
 
 
